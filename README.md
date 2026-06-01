@@ -8,5 +8,5 @@
   it's my passion 
   let's bring this on another level 
  let's make something new
- something exciting together 
+  something exciting together 
  join in this journey 
