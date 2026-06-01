@@ -4,7 +4,7 @@
  currently studying in sspm coe
  cse(AI/ML) 
  focusing on my goal
-  stay tuned 
+ stay tuned 
   it's my passion 
   let's bring this on another level 
   let's make something new
